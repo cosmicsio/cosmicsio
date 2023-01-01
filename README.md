@@ -1,5 +1,5 @@
 👋 @cosmics_io
 
-Portale di #comics emergenti in italiano per lo #streaming integrato con #tecnologia #blockchain che utilizza la propria #crypto
+Portale #Streaming di #Comics Emergenti con #Tecnologia #Blockchain Integrata che Utilizza la Propria #Crypto al Suo Interno
 
 Sito Web: https://www.cosmics.io
